@@ -1,0 +1,1 @@
+[WRO 2018 - RUSSIAN YELLOW Team - Regular Junior Category](https://www.youtube.com/watch?v=rpcDvGfM4c8)
